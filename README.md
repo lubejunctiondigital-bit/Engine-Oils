@@ -64,9 +64,7 @@ Proper lubrication helps:
 # Connect With Lube Junction
 
 ## Social Media
-Instagram: https://instagram.com/lubejunction  
-LinkedIn: https://linkedin.com  
-TikTok: https://tiktok.com  
+Instagram: https://instagram.com/lube_junction  
 
 
 # Keywords
